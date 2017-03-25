@@ -143,13 +143,13 @@ Cước tin nhắn sẽ được tính 290 VNĐ/tin nhắn cho nội mạng và 
 
 Khi hết Data miễn phí, hệ thống VinaPhone sẽ giảm tốc độ và không thu thêm cước.</blockquote>
 <h2>GÓI CƯỚC VINAPHONE TRẢ SAU CHO CÁ NHÂN</h2>
-<h3><strong>Gói cước VinaPhone gọi miễn phí 10 phút</strong></h3>
+<h3><a href="http://vinaphone-vnpt.com/vinaphone-doanh-nghiep/goi-cuoc-vinaphone-mien-phi-10-phut.html">Gói cước VinaPhone gọi miễn phí 10 phút</a> </h3>
 Khi đăng ký gói cước VinaPhone gọi miễn phí 10 phút khách có ngay số phút nhất định trong một tháng để gọi 3 mạng VinaPhone, Mobifone và điện thoại cố định VNPT.
 
 Mỗi cuộc gọi không vượt quá 10 phút, khi vượt quá 10 phút cước sẽ được tính từ phút thứ 10 trở đi
 
 <a href="http://vinaphone-vnpt.com/uploads/2015/06/goi-cuoc-vinaphone-ca-nhan-goi-10-phut.png"><img class="wp-image-1034 size-full" src="http://vinaphone-vnpt.com/uploads/2015/06/goi-cuoc-vinaphone-ca-nhan-goi-10-phut.png" alt="Gọi cước Vinaphone trả sau cá nhân gọi miễn phí 10 phút" width="600" height="310" /></a> Gọi cước Vinaphone trả sau cá nhân gọi miễn phí 10 phút
-<h3><strong> Gói cước VinaPhone trả sau gọi tất cả các mạng</strong></h3>
+<h3><strong> <a href="http://vinaphone-vnpt.com/vinaphone-doanh-nghiep/vinaphone-tra-sau-goi-tat-ca-cac-mang.html">Gói cước VinaPhone trả sau gọi tất cả các mạng</a></strong></h3>
 Khi đăng ký gói cước VinaPhone trả sau gọi tất cả các mạng khách có ngay số phút nhất định trong tháng để gọi đến tất cả các mạng Di động và Cố định trong nước.
 
 Mỗi cuộc gọi không giới hạn số phút và không bao gồm gọi đến các số tổng đài như 1800xx, 1900xx, …
