@@ -20,7 +20,7 @@ Gọi ngay <span style="color: #ff0000;"><strong>HOTLINE 0914977987</strong></sp
 <img class="size-full wp-image-2125" src="http://vinaphone-vnpt.com/uploads/2017/03/vinaphone-quan-6.jpg" alt="VinaPhone Quận 6" width="380" height="200" /> VinaPhone Quận 6<h2 class="pos-title">Khuyến mãi đặc biệt khi đăng ký trả sau tại VinaPhone Quận 6</h2>
 <p class="pos-title">Khi khách hàng hòa mạng mới VinaPhone trả sau tại nhà có thể chọn số trực tiếp từ kho số chính thức của Vinaphone tại <strong><a href="http://vinaphone-vnpt.com/chon-so-vinaphone">Kho số Vinaphone toàn quốc</a></strong></p>
 
-<h2>Gói cước VinaPhone Thương gia</h2>
+<h2><a href="http://vinaphone-vnpt.com/vinaphone-ca-nhan/goi-cuoc-thuong-gia-moi-danh-cho-khach-hang-ca-nhan-2016.html">Gói cước VinaPhone Thương gia VinaPhone</a></h2>
 Gói cước VinaPhone Thương gia được VinaPhone cho ra mắt năm 2016 với nhiều ưu đãi hấp dẫn hơn.
 
 Gói cước không bị giới hạn số phút trong 1 lần gọi.
